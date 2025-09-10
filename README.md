@@ -11,7 +11,7 @@
 - 🌱 I’m currently learning **Generative AI**
 - 👩‍💻 All of my projects are available at [My GitHub Repositories](https://github.com/thepallavi007?tab=repositories)
 - 📫 How to reach me **thepvkri@gmail.com**
-- 📄 Know about my experiences [My Resume](https://drive.google.com/)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1LbBCah6yfULZwojfoUQcLfMzocKwY1Mw/view?usp=sharing)
 
 ---
 
